@@ -1,3 +1,6 @@
+mds redz PQ ESSA BAGAÇA E PRA MOBILE SENDO Q NEM FUNCIONOU NO MEU CLL?
+
+
 ## this is my new project
 ## fix dex-explorer and improve
 
